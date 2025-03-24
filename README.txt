@@ -1,0 +1,1 @@
+Aplicativo essencial para projeções e organização financeira
